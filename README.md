@@ -1,0 +1,1 @@
+# Sopra-Steria-Mail-Signature-for-iOS
